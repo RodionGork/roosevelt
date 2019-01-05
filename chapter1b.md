@@ -107,3 +107,74 @@
 поскольку мог в отличие от него стоять в рост под столом - бросился к лестнице.
 Однако я был пойман на полпути. Последовавшее наказание соответствовало преступлению
 и надеюсь, верю, пошло мне на пользу.
+
+I never knew any one who got greater joy out of living than did my
+father, or any one who more whole-heartedly performed every duty; and no
+one whom I have ever met approached his combination of enjoyment of life
+and performance of duty. He and my mother were given to a hospitality
+that at that time was associated more commonly with southern than
+northern households; and, especially in their later years when they
+had moved up town, in the neighborhood of Central Park, they kept a
+charming, open house.
+
+Отец вкладывал много сил в свой бизнес, и умер в возрасте 64 лет, слишком рано
+чтобы отправляться на пенсию. Он рьяно интересовался всеми движениями за социальные
+реформы, и большое количество практических благотворительных затей осуществил сам.
+Он был большим, сильным человеком, с львиным лицом и сердцем, наполненным
+мягкостью ко всем кто нуждался в помощи или защите - и равно готовым на великий
+гнев против угнетателей и задир.
+
+Он очень любил верховую езду - как по дорогам, так и в вольной местности - и также
+здорово управлялся с хлыстом и повозкой. Обычно он правил четверкой, либо же
+"единорогом" - парой лошадей с третьей ведущей впереди. Не думаю что такие упряжки
+сохранились сейчас. Повозку его мы всегда звали "высокий фаэтон" - с передними колесами,
+поворачивающимися под передком - она до сих пор сохранилась у меня.
+
+Лошади его были длиннохвостые и запрягались свободно в легкую американскую упряжь,
+так что в целом все это не имело сходства ни с чем, что можно увидеть теперь.
+Отец всегда отличался умением использовать любые свободные пол- или три четверти
+часа - хоть для работы, хоть для развлечения. Езду в четверке он чаще всего
+практиковал летом, когда возвращался в послеобеденное время поездом из Нью-Йорка.
+Мать и кто-то (иногда двое) из детей встречали его на станции. Я как сейчас
+вижу его выходящим из вагона в своем льняном пыльнике [плащ для верховой езды] -
+вот он вскакивал в повозку и сразу пускал грохочущим аллюром, так что пыльник
+этот порой раздувался как воздушный шар.
+
+Как можно понять из этого описания, четверка в его глазах вовсе не была
+предметом роскоши. Он ездил на ней потому что ему нравилось править четверкой.
+Он всегда заповедовал нам, мальчишкам, соблюдать осторожность - но сам в этом
+конкретном случае не следовал чрезмерно этой заповеди - и превосходно
+владея хлыстом он немало полагался на удачу. Обычно удача сопутствовала и
+все было хорошо. Иногда случалось, что не сопутствовала. Впрочем он замечательно
+умел выпутываться из неприятностей, лучше чем попадать в них.
+
+Однажды когда мы ехали в Нью-Йорк поздним вечером, ведущие лошади вдруг стали.
+Он щелкнул хлыстом - и в следующий момент мы смутно различили что они
+прыгают. Оказалось что улица была перекрыта и поперек ее установлен брус
+на двух бочонках, но без фонаря. Вот через нее передняя двойка и скакнула -
+так что дальше последовала немалая суматоха, пока мы смогли избавиться от бруса
+и продолжить путь.
+
+When in the city on Thanksgiving or Christmas, my
+father was very apt to drive my mother and a couple of friends up to the
+racing park to take lunch. But he was always back in time to go to the
+dinner at the Newsboys' Lodging-House, and not infrequently also to
+Miss Sattery's Night School for little Italians. At a very early age we
+children were taken with him and were required to help. He was a staunch
+friend of Charles Loring Brace, and was particularly interested in the
+Newsboys' Lodging-House and in the night schools and in getting the
+children off the streets and out on farms in the West. When I was
+President, the Governor of Alaska under me, Governor Brady, was one of
+these ex-newsboys who had been sent from New York out West by Mr. Brace
+and my father. My father was greatly interested in the societies to
+prevent cruelty to children and cruelty to animals. On Sundays he had
+a mission class. On his way to it he used to drop us children at our
+Sunday-school in Dr. Adams's Presbyterian Church on Madison Square; I
+remember hearing my aunt, my mother's sister, saying that when he walked
+along with us children he always reminded her of Greatheart in Bunyan.
+Under the spur of his example I taught a mission class myself for three
+years before going to college and for all four years that I was in
+college. I do not think I made much of a success of it. But the other
+day on getting out of a taxi in New York the chauffeur spoke to me and
+told me that he was one of my old Sunday-school pupils. I remembered him
+well, and was much pleased to find that he was an ardent Bull Mooser!
